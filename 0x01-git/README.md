@@ -1,1 +1,1 @@
-A nice story
+something good
